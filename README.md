@@ -1,2 +1,6 @@
 # Changing-Our-World-
 Helping people who have made bad decisions, that found themselves in prison trying to figure out how to make a life!
+So often people find themselves in a situation or wrong place wrong time things or maybe just was born in bad circumstances! None the less if we want people to stop committing crimes and start being productive members of society we must teach them a new way of life!
+How often do we watch the news and see somebody who has done something just down right stupid right! Well most likely a lot of times we could probably prevent this if we spent a little more time invested in what our children are doing! 
+Our children have no guidance so what I'm saying is Change starts at home! But we have people who have no home or no one who cares enough to take time to help. Change is hard and if a person has help to change 7 out of 10 will more than like change!
+Let me ask you this is there anyone in your life that has or had a big impact in or on your life. Now depending upon this particular person it may have been a positive or negative effect! So how do we fix someone who has been taught a completely distorted way life, i.e. a person who thinks life is just money!!!
